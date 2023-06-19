@@ -1,1 +1,1 @@
-Moses Zeggey here. Interested in exploring new things. 😄
+Python, Javascript, Linux. Always tries to enjoy  whatever I do. 
